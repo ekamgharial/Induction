@@ -1,2 +1,2 @@
-# Induction
-CSE
+# DAY 1
+## 8:30 - 9:30
