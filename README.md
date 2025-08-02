@@ -1,7 +1,16 @@
 # DAY 1  
-## Time: 8:30 A.M.
+## Time: 8:30 A.M. onward
 
-We were given a **warm welcome** by our *teachers, seniors, and staff*, setting a positive tone for the journey ahead. Later, **Er. Rakesh Kumar** (*1991 alumni, ADC Ludhiana*) and **Sh. Rajivder Garg** (*Municipal Corporation, Ludhiana*) shared inspiring words. Alumni encouraged us to be *bold*, stay *motivated*, and keep *moving forward*. A guest speaker also introduced a **loan scheme** to support students with *financial challenges*. The **HOD of Applied Sciences** gave us insights into how our next **4 years** would shape up — starting with our *first year* in this department before we move on to our **core CSE classes**.
+The day began at **8:30 A.M.** with a peaceful and soothing *Shabad Kirtan*, followed by **tea and snacks** around *9:30 A.M.*. The **inaugural ceremony** started at *10:00 A.M.*. We were given a **warm welcome** by our *teachers, seniors, and staff*, setting a positive tone for the journey ahead. Later, **Er. Rakesh Kumar** (*1991 alumni, ADC Ludhiana*) and **Sh. Rajivder Garg** (*Municipal Corporation, Ludhiana*) shared inspiring words. Alumni encouraged us to be *bold*, stay *motivated*, and keep *moving forward*. A guest speaker also introduced a **loan scheme** to support students with *financial challenges*. The **HOD of Applied Sciences** gave us insights into how our next **4 years** would shape up — starting with our *first year* in this department before we move on to our **core CSE classes**.
 
 
+# DAY 2  
+## Time: 9:30 A.M. onward
 
+The day began with the **English Proficiency Test** at *9:30 A.M.*, followed by the **Maths Proficiency Test** from *10:30 A.M. to 11:30 A.M.* — both conducted in our respective classrooms. After a short *break*, we attended an **expert lecture by Dr. Arashdeep Singh** on *"Food: A Pivotal Role in Student's Overall Wellness"*, which emphasized the importance of mindful eating and health during student life. Later, from *2:00 P.M. to 3:00 P.M.*, we participated in an energetic session hosted by the **Causmic Club**, where the **induction activities were officially launched**. The day was a mix of academic evaluation and insightful engagement, helping us connect with the institute's values and student life.
+
+
+# DAY 3 
+## Time: 9:00 A.M. onward
+
+The day began with an *enlightening session* by **Dr. Jaswinder Singh**, who **emphasized discipline, healthy habits, and the importance of mindset** in a student’s life. After the break, we had a talk by **Dr. Priya Darshani Ma’am** on *Universal Human Values*, where she raised thought-provoking questions like *“Does money really make us happy?”* and *“How important are relationships and inner peace?”* Her words reminded us to focus not just on academics, but also on mental health, self-reflection, and **being a better human as an engineer**.
