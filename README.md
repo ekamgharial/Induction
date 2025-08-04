@@ -14,3 +14,10 @@ The day began with the **English Proficiency Test** at *9:30 A.M.*, followed by 
 ## Time: 9:00 A.M. onward
 
 The day began with an *enlightening session* by **Dr. Jaswinder Singh**, who **emphasized discipline, healthy habits, and the importance of mindset** in a student’s life.He made us realize that *Mathematics exists everywhere in the world from subjects to daily life. **He performed a couple of physics experiments too** which were quite fun to watch. Then, we had an expert lecture by **Dr. Priya Darshani Ma’am** on *Universal Human Values*, where she raised thought-provoking questions like *“Does money really make us happy?”* and *“How important are relationships and inner peace?”* Her words reminded us to focus not just on academics, but also on mental health, self-reflection, and **being a better human as an engineer**.
+
+
+# DAY 4
+
+## Time: 9:30 A.M. onward
+
+**The day started with P2P classes** taught by *two seniors from the IT department*, where we learned the **basics of C++ syntax**. At 10:30 A.M., we attended an **English lecture by Prof. Manjot Kaur**, where she focused on tenses and conducted an *interactive introduction session* to understand our names, hobbies, strengths, and weaknesses. Later, **at 12:30 P.M., we had an expert lecture by Dr. Priya Darshani Ma’am on Universal Human Values**, discussing the difference between temporary and permanent happiness and *how we may use  certain distractions escape depression which isn't right*. **The day ended with a session by the Causmic Club at 2:30 P.M.**, where they *shared their history, achievements, and upcoming goals*.
