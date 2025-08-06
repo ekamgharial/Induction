@@ -30,8 +30,8 @@ The day began with an *enlightening session* by **Dr. Jaswinder Singh**, who **e
 The day started with our **BEEE** (Basic Electrical and Electronics Engineering) class at *10:30 A.M.*, conducted by *Prof. Harminder Kaur*. She took our *introductions* and gave us a general idea of the subject. Then at *11:30 A.M.*, we had our **Chemistry class** with *Prof. Mandeep Kaur*. She gave us insights about what our college journey would look like and also touched upon a *few basic chemistry concepts*. After lunch, at *2:00 P.M.*, we were called to the **TCC Sem Hall for ID card formalities**. We had to submit our details and get a *live photo* clicked which would be used for our college ID cards.
 
 
-# ***DAY 6***
+# DAY 6
 
-## ***Time: 9:30 A.M. onward***
+## Time: 9:30 A.M. onward
 
 The day began with our **Chemistry Lecture** at *9:30 A.M.* in our classroom, where *Prof. Mandeep Kaur* continued teaching us the basics of the subject. After that, at *10:30 A.M.*, we had a **Maths Lecture** by *Prof. Gagandeep Kaur*, where we were introduced to foundational mathematical concepts. At *11:30 A.M.*, we had a break before heading to the Auditorium sessions. The first was an **informative talk by Dr. Arvind Dhingra** from 12:30 to 2:00 P.M., where he spoke about the *importance of holistic development*. Then at 2:00 P.M., **Mr. Jasvir Singh Sekhon gave a motivating lecture on STEM education**. Lastly, from 3:00 to 4:00 P.M., we attended **a session by Dr. Lakhvir Singh Khana**, where we *discussed career management and leadership qualities* essential for engineering students.
