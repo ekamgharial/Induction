@@ -1,3 +1,12 @@
+# *Introduction*
+
+Name: Ekampreet Singh
+Class: CSE B1
+Registration Number: 25101908
+Mobile Number: 7973254903
+I chose Computer Science Engineering at GNDEC because of my deep interest in web and app development. I’ve always been passionate about creating useful digital tools and bringing ideas to life through code. GNDEC’s focus on technical excellence and practical exposure made it the perfect place to begin my journey in tech.
+
+
 # DAY 1  
 ## Time: 8:30 A.M. onward
 
